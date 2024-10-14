@@ -1,1 +1,1 @@
-My name it Tekle. I enjoy plaing sports.
+My name it Tekle. I enjoy plaing sports
